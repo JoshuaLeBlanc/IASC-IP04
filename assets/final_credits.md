@@ -10,3 +10,8 @@ To view a copy of this license, visit https://creativecommons.org/licenses/by-sa
 
 ---
 
+Far Away Rocket Launch http://freesound.org/people/qubodup/sounds/211617 by Iwan ‘qubodup’ Gabovitch 
+http://freesound.org/people/qubodup under 
+CC-BY 3.0 License http://creativecommons.org/licenses/by/3.0/legalcode
+
+---
