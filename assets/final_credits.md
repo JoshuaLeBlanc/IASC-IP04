@@ -3,4 +3,10 @@
 by BiblioArchives / LibraryArchives is licensed with CC BY 2.0. To view a copy of this license,
 \visit https://creativecommons.org/licenses/by/2.0/
 
------------------------------------------------------------------------------------------------
+---
+
+"Nature" by ForestWander.com is licensed with CC BY-SA 2.0. 
+To view a copy of this license, visit https://creativecommons.org/licenses/by-sa/2.0/
+
+---
+
